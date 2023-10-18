@@ -1,11 +1,7 @@
 ### Hi there 👋
-
-<!--
-**Vishnupriyavip/Vishnupriyavip** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 ###👋 Hello, I'm Vishnu Priya
 
-🚀 Aspiring Full-Stack Creative |🖌️ UI/UX Enthusiast| 💼 Digital Marketer | 🎨 Graphic Designer | ✍️ Content Writer | 
+ Aspiring Full-Stack Creative 🚀|🖌️ UI/UX Enthusiast| 💼 Digital Marketer | 🎨 Graphic Designer | ✍️ Content Writer | 
 
 🌟 About Me:
 I'm a multifaceted creative professional with a passion for digital marketing, graphic design, content writing, and user interface/user experience (UI/UX) design. 
@@ -19,7 +15,8 @@ My journey in the digital world has allowed me to wear various hats and gain ins
 
 🔗 Connect with Me:
 📧 Email: saivishnupriya@ymail.com
+-->>can call @ +9197970808200
 📌 LinkedIn: https://www.linkedin.com/in/saivishnupriya
 🌈 Let's create digital magic together! I'm always open to collaboration and eager to learn from others in this ever-evolving digital landscape. Reach out, and let's make things happen! 🚀
 
--->
+
