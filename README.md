@@ -12,7 +12,7 @@
 - 🎨 Graphic Design: My design skills bring ideas to life through visually stunning graphics, ensuring that form and function work seamlessly together.
 - ✍️ Content Writing: I have a way with words, creating engaging and informative content that resonates with target audiences.
 
-🔗 Connect with Me:
+🔗 **Connect with Me:**
 *📧 Email: saivishnupriya@ymail.com
 *-->>can call @ +9197970808200
 📌 LinkedIn: https://www.linkedin.com/in/saivishnupriya
