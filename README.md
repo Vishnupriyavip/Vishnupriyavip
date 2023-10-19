@@ -13,9 +13,10 @@
 - ✍️ Content Writing: I have a way with words, creating engaging and informative content that resonates with target audiences.
 
 🔗 **Connect with Me:**
-*📧 Email: saivishnupriya@ymail.com
-*-->>can call @ +9197970808200
-📌 LinkedIn: https://www.linkedin.com/in/saivishnupriya
-🌈 Let's create digital magic together! I'm always open to collaboration and eager to learn from others in this ever-evolving digital landscape. Reach out, and let's make things happen! 🚀
+* 📧 Email: saivishnupriya@ymail.com
+* -->>can call @ +9197970808200
+* 📌 LinkedIn: https://www.linkedin.com/in/saivishnupriya
+* 🌈 Let's create digital magic together!
+* I'm always open to collaboration and eager to learn from others in this ever-evolving digital landscape. Reach out, and let's make things happen! 🚀
 
 
